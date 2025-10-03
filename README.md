@@ -39,11 +39,6 @@ He cursat l'ESO a l'Escola Pia Santa Anna Mataró
 
 ---
 
-### 📚 Assignatures destacades
-
-
----
-
 ## 🛠 Habilitats
 
 - Treball en equip  
